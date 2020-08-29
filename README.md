@@ -1,0 +1,1 @@
+# Venue_jobhaku_200905_AssetDevelop
